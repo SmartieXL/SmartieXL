@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SmartieXL.
+- 👀 I’m interested in Soccer, gaming and going outside with friends.
+- 🌱 I’m currently learning how to code.
+- 📫 How to reach me 525615@vistacollege.nl
